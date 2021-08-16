@@ -19,7 +19,7 @@ And as usual… happy painting 🎨
 Tips before starting:
 
 - Take your time & slow down
-- Keep your distance
+- Keep your distance (don't zoom in, always see the full image)
 - Don't draw things, draw shapes
 - Use a medium size brush tip
 - Don't stress about clean lines
