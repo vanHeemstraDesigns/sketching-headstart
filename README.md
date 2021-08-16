@@ -16,6 +16,14 @@ I hope you find them useful, and I can't wait to see your results!
 
 And as usual… happy painting 🎨
 
+Tips before starting:
+
+- Take your time & slow down
+- Keep your distance
+- Don't draw things, draw shapes
+- Use a medium size brush tip
+- Don't stress about clean lines
+
 ![image](https://user-images.githubusercontent.com/12828104/129536364-6ac25f60-2965-46d9-9318-52820d6132f2.png)
 
 ## 100 - Simplify the shape
